@@ -1,6 +1,6 @@
 # Hi, I'm Vasilisa
 
-## I'm a Junior Data Analyst / Project Manager
+## Data-Oriented SEO Specialist | Project Management
 
 * 💻 I have 5 years of experience in digital marketing. I worked as an SEO specialist for brands like _Forbes Woman_ and _Forbes Life_ (ru), _KNAUF Therm®_ (ru), _Gazprom Neft_ (ru, en), _Marc O'Polo_ (ru), _Okko_ (ru), and more. 
 * 🎓 I graduated from the Higher School of Economics (St. Petersburg), M.A. in Sociology. I majored in quantitative methods.
